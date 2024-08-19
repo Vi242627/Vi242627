@@ -10,5 +10,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 [@Vi_magalhães
 
-![](https://media1.tenor.com/m/NCrc5qKHcjsAAAAC/flowers-field.gif)
+
 ![](https://media1.tenor.com/m/NCrc5qKHcjsAAAAC/flowers-field.gif)
